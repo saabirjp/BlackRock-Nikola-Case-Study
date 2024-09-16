@@ -1,0 +1,1 @@
+With its 4% stake, BlackRock Inc. (NYSE:BLK) is one of the leading institutional shareholders in Nikola Corporation (NYSE:NKLA), an American electric vehicle manufacturer. This case study intends to offer BlackRock a thorough examination of Nikola in order to better understand its strategic goals and make competent investment decisions. 
